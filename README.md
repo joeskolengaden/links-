@@ -1,5 +1,5 @@
 # links-
-[nikhil](Github.com/nikhilpsathyanathan)
+[nikhil](https://www.Github.com/nikhilpsathyanathan)
 
 [rohit](https://github.com/innovative-roh)
 
